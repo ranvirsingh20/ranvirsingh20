@@ -1,1 +1,1 @@
-## - Hey, I’m Ranvir
+## - Ranvir
